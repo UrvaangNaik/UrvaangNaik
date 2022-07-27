@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @UrvaangNaik
+- 👀 I’m interested in working with Data and analyzing stats.
+- 🌱 I’m currently learning Data Analysis
+- 💞️ I’m looking to collaborate on Data Analysis Projects
+- 📫 How to reach me: uru.naik23@gmail.com
+- 😄 Pronouns: He/Him
